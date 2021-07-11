@@ -11,7 +11,7 @@ You can click the Preview link to take a look at your changes.
 
 👨‍💻 Check out my portfolio here
 
-📫 How to reach me merishujaiswal@gmail.com
+📫 How to reach me edwardleeweijie@yahoo.com
 
 📄 Know about my experiences LinkedIN
 
