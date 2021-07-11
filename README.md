@@ -15,4 +15,4 @@ You can click the Preview link to take a look at your changes.
 
 📄 Know about my experiences LinkedIN
 
-⚡ Fun fact I count from 0 :P
+⚡ Fun fact 
